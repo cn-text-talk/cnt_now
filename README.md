@@ -99,6 +99,5 @@
 <br>从宇宙最高到最低都是一样的标准。“你得达到我的标准”。我就是李洪志。
 <br>从宇宙最高到最低都是一样的标准。“你得达到我的标准”。我就是李洪志。
 <br>从宇宙最高到最低都是一样的标准。“你得达到我的标准”。我就是李洪志。
-<br>
-![MLH_100_R000_M_1X2_00](https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4)
 </h3>
+![MLH_100_R000_M_1X2_00](https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4)
